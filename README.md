@@ -1,4 +1,4 @@
-# MK Store - Your one stop shop for everything clothing
+# :fire: MK Store - Your one stop shop for everything clothing
 
 Welcome to MK Store, your ultimate destination for high-quality clothing. We specialize in offering a wide range of stylish and comfortable apparel for men, women, and children. Our mission is to provide our customers with the best shopping experience by offering a vast selection of products, competitive prices, and exceptional customer service.
 
